@@ -1,4 +1,4 @@
-Io sono Nessuno!
+1Io sono Nessuno!
 di Emily Dickinson
 
 Io sono Nessuno! Tu chi sei?
